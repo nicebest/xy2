@@ -8,3 +8,5 @@ https://pan.baidu.com/s/1q1u1Tk4D7FrqqOPt5YsIRA
 端游链接（各有千秋，精彩纷呈，值得体验）：https://pan.baidu.com/s/1qEfzUXoEc8dGnZBqme2dcg?pwd=MHDT 
 提取码：MHDT 
 注：端游与手游不互通，文件较大，建议群文件下载，两个包都下载完后，解压第一个包到当前目录即可完成全部解压。
+【梦回大唐2】：https://jq.qq.com/?_wv=1027&k=XxEn18xi
+【梦回大唐2】：https://jq.qq.com/?_wv=1027&k=rD4JA55S
